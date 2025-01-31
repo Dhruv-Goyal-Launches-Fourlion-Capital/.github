@@ -6,11 +6,11 @@ In recent years, India has emerged as a hotspot for investment, attracting globa
 
 Before exploring Fourlion Capital, it's essential to understand the man behind the brand—Dhruv Goyal. With a background in technology and entrepreneurship, Goyal has a proven track record of successfully launching and scaling innovative businesses. His expertise lies not only in understanding market dynamics but also in recognizing emerging trends that can shape industries.
 
-Having worked on numerous projects across various sectors, Goyal has developed a keen eye for identifying potential investment opportunities. His dedication to fostering innovation and driving economic growth has positioned him as a key player in India's burgeoning startup ecosystem.
+Having worked on numerous projects across various sectors, [Dhruv Goyal](https://fourlioncapital.com/team/) has developed a keen eye for identifying potential investment opportunities. His dedication to fostering innovation and driving economic growth has positioned him as a key player in India's burgeoning startup ecosystem.
 
 ## The Vision Behind Fourlion Capital
 
-[Fourlion Capital](https://fourlioncapital.com/team/) was conceived as a response to the growing need for strategic investment in India’s rapidly evolving market. Goyal recognized that many entrepreneurs and startups lack the funding and resources necessary to scale their businesses. With this venture, he aims to bridge that gap by providing not only financial support but also mentorship and guidance to budding entrepreneurs.
+Fourlion Capital was conceived as a response to the growing need for strategic investment in India’s rapidly evolving market. Goyal recognized that many entrepreneurs and startups lack the funding and resources necessary to scale their businesses. With this venture, he aims to bridge that gap by providing not only financial support but also mentorship and guidance to budding entrepreneurs.
 
 ### Targeting Diverse Sectors
 
